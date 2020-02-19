@@ -3,4 +3,4 @@ Dave Narby has been a Libertarian activist for over two decades. He is a member 
 
 If you wish to contact him about a project, he writes, edits, records/produces voice overs/audiobooks, and has even been known to occasionally engage in honest work, e.g. sales.
 
-He's on various social media, but the best way to contact him is davenarby at protonmail dot com.
+He's on various social media, but the best way to contact him is davenarby@protonmail.com
